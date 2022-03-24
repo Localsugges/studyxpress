@@ -1,2 +1,3 @@
 # studyxpress
-" Study Xpress is one of the Best WBCS Coaching Centre in Kolkata | and come be a part of Study Xpress to get Best WBCS Coaching in Kolkata and we assure to have best faculties with good study material &amp; Test Series, WBCS Coaching In Kolkata"
+" Study Xpress is one of the Best <a href="https://www.studyxpress.in/best-wbcs-coaching-in-kolkata/">wbcs coaching centre in kolkata</a> | and come be a part of Study Xpress to get Best WBCS Coaching in Kolkata and we assure to have best faculties with good study material &amp; Test Series, WBCS Coaching In Kolkata"
+We have prepared some important strategies for <a href="https://www.studyxpress.in/best-wbcs-coaching-in-kolkata/">Best Banking coaching in kolkata</a> like bank po, bank clerk, bank SO exams preparation, which will definitely prove us as top bank coaching in Kolkata for your preparation, Best Banking Coaching In Kolkata. Lets have a look 
